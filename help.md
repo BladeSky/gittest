@@ -1,1 +1,0 @@
-us/so/sosomt.p
